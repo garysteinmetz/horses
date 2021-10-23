@@ -1,3 +1,3 @@
 # horses
-super cool horses
-to annoy dad. he stinks like eggs and trash
+super cool horse
+Father stinks like eggs and trash
